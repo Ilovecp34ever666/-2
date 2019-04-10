@@ -1,9 +1,9 @@
 /*
-   What is this?
+   ~2 
 
-   By who?
+   Yifu Liu
 
-   What do you need?
+   Neopixels, 2 windsensors, 
 
 */
 //==========================================================================
