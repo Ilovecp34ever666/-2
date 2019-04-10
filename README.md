@@ -1,0 +1,2 @@
+# -2
+~2 stands for ‘about two’ or ‘about to’, seen as a ‘material’ connects people intuitively in dark, ‘light’ promotes the concept of a co-dependent relationship. In this case, the poetic joint action of air-blowing is an interaction that is transferred into a living lighting source to be shared. Resulting in a series of glass artefacts that captures the movement of blowing, the project marks a dialogue between art, design and crafts. 
